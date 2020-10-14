@@ -4,6 +4,6 @@
 或者添加微信号：bjmashibing001
 手机用户长按扫码即可
 
-[![_20201014205411.jpg](https://www.zx95.net/images/2020/10/14/_20201014205411.jpg)](https://www.zx95.net/image/1OsLa)
+[![1.png](https://www.zx95.net/images/2020/10/14/1.png)](https://www.zx95.net/image/1Otcd)
 
 只要你来，只要我有
